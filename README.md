@@ -1,4 +1,4 @@
 ## Hi :)
 I'm a student, starter at GitHub!
 
-![](https://tenor.com/pt-BR/view/inside-out-joy-hi-hello-excited-to-see-gif-2111474342105646880)
+![](https://media1.tenor.com/m/HU12uiGPByAAAAAC/inside-out-joy.gif)
